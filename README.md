@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... many things
 - 💞️ I’m looking to collaborate on ...with the studies
 - 📫 How to reach me ...studying
-- 😄 Pronouns: ...ela/deela
+- 😄 Pronouns: ...ela/dela
 - ⚡ Fun fact: ...i´m strange
 
 <!---
